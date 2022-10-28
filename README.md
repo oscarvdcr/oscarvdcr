@@ -1,0 +1,4 @@
+- Hi, I’m @oscarvdcr.
+- A student in the university of Lleida (UdL).
+- At the moment I have this github for university projects and hackatons.
+- Don't expect a ton.
