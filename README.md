@@ -7,7 +7,7 @@
 
 - All of my projects public are available at [https://github.com/oscarvdcr?tab=repositories](https://github.com/oscarvdcr?tab=repositories)
 
-- Fun fact **I like Warhammer and videogames**
+- Fun fact **Computers to do beep beep boop boop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
